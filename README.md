@@ -18,3 +18,6 @@ https://www.smartwriter.ai/university/how-to-access-your-instagram-cookie-and-wh
 
 
 i used this script from 2019 i remember. my friend and i learned ts with this. my git account got ban that time with uploading shit stuffs lol
+
+
+still working in 2024/7/
